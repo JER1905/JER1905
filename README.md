@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on ... taking over the world 
 - 📫 How to reach me ...bat light
 - 😄 Pronouns: ... LOVELY 
-- ⚡ Fun fact: ... LETS CHARGE IT TO THE GAME
-- <meta name="google-site-verification" content="LiVFS4ZKZO7tNWh0ZaaS30CUd0tt7-FCO1ebMnItZu8" />
+- ⚡ Fun fact: ... LETS CHARGE IT TO THE GAME/>
 
 
 <!---
